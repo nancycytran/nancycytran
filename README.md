@@ -9,11 +9,11 @@ I’m a **Social Media Specialist** currently working at [Magipik](https://magip
 - **Analytics & Reporting**: Utilize data-driven insights to optimize performance and improve campaigns.
 
 ### 📌 Recent Projects:
-- Managing AI-focused content on [Facebook](https://www.facebook.com/your-page).
+- Managing AI-focused content on [Facebook](https://www.facebook.com/socialcraft.fb/).
 - Sharing marketing insights on my Medium page at [SocialCraft](https://medium.com/@socialcraft).
 - Collaborating on creative design projects at [Magipik](https://magipik.com).
 
 ### 🌟 Let's Connect:
-- [Behance](https://www.behance.net/your-profile)
-- [LinkedIn](https://www.linkedin.com/in/your-profile)
-- [Twitter](https://twitter.com/your-handle)
+- [Threads](https://www.threads.net/@nancycytran)
+- [LinkedIn](https://www.linkedin.com/in/nancycytran/)
+- [Twitter](https://x.com/nancycytran)
